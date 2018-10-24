@@ -21,14 +21,26 @@ To śmierć, ty to śmierć (yeah)
 Flota dronów, flota dronów rozwali to wszystko w perz
 Co ty jeszcze nie wiesz co to jest? To śmierć.
 Ty to śmierć x3
+Ty to śmierć, ty to śmierć - ye ey
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
-Wszystkie więzi w perz
-Przemyśl to no ponów myśl, 
-rzuć to wszystko lub się skreśl
-Wejdź w ten chaos, odnajdź się
-Podwójna wypłata to nie kres
+Wszystkie więzi w perz, przemyśl to no ponów myśl, 
+
+x
+x
+x
+x
+x
+x
+x
+x
+
+Rzuć to wszystko lub się skreśl
+Wejdź w ten chaos, odnajdź się, Podwójna wypłata to nie kres
+
+Flota dronów, flota dronów zabije twoją rodzinę ey
+Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 
