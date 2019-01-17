@@ -8,6 +8,8 @@ Hitech Crime Single 'Flota Dronów'
 
 ya ya ya ya skrrt skrrt skrrt
 
+"Come on, fire!"
+
 Flota dronów, flota dronów zabije twoją całą rodzinę (ye)
 Flota dronów, flota dronów zabije twoją rodzinę (aye ey - ya)
 
@@ -21,7 +23,7 @@ To śmierć, ty to śmierć (yeah)
 Flota dronów, flota dronów rozwali to wszystko w perz
 Co ty jeszcze nie wiesz co to jest? To śmierć.
 Ty to śmierć x3
-Ty to śmierć, ty to śmierć - ye ey
+Ty to śmierć ye, ty to śmierć - ye ey
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
