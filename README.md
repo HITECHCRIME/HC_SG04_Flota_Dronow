@@ -46,5 +46,5 @@ Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 
-Wypełni Twe niebo (???????)
-Zabije całą Twą rodzinę
+Zasłoni Twe niebo (???????)
+Zabije całą Twą rodzinę ? nope nope nope
