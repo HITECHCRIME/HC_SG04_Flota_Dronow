@@ -28,6 +28,10 @@ Ty to śmierć ye, ty to śmierć - ye ey
 Flota dronów, flota dronów zabije twoją rodzinę ey
 Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
 Wszystkie więzi w perz, przemyśl to no ponów myśl, 
+x 
+x
+x w perz ye
+następnie
 
 x
 x
