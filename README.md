@@ -16,34 +16,23 @@ Flota dronów, flota dronów zabije twoją rodzinę (aye ey - ya)
 Co ty sobie myślisz biurwo - aha
 Co ty sobie myślisz biurwo - no co
 Co ty sobie myślisz biurwo co ty sobie myślisz kurwo
-Że co to jest, co to jest x2 ey
+Że co to jest, co to jest x2 to jest ey
 Co ty sobie myślisz biurwo?
 To śmierć, ty to śmierć (yeah)
 
-Flota dronów, flota dronów rozwali to wszystko w perz
-Co ty jeszcze nie wiesz co to jest? To śmierć.
+flota dronów, flota dronów rozwali to wszystko w perz
+co ty jeszcze nie wiesz co to jest - to śmierć.
 Ty to śmierć x3
 Ty to śmierć ye, ty to śmierć - ye ey
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
-Wszystkie więzi w perz, przemyśl to no ponów myśl, 
-x 
-x
+Wszystkie więzi w perz, przemyśl to no ponów myśl,  
+Wejdź w ten chaos, odnajdź się,
+Rzuć to wszystko lub się skreśl
+Podwójna wypłata to nie kres
 x w perz ye
 następnie
-
-x
-x
-x
-x
-x
-x
-x
-x
-
-Rzuć to wszystko lub się skreśl
-Wejdź w ten chaos, odnajdź się, Podwójna wypłata to nie kres
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
