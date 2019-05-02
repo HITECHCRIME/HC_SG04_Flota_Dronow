@@ -40,7 +40,7 @@ flota za brak atencji, brak odzewu
 dopiero jak się wszystko wali, 
 poczujesz swoją prawdziwą naturę
 nie zrozumiesz mnie bo nic widzisz nawet siebie
-no to leci dron, skapniesz się jak cię rozjebie
+no to leci dron, skapniesz się jak cię rozjebie (dojrzysz sedno dopiero jak cię rozjebie)
 
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
