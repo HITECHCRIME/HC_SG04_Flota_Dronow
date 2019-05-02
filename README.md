@@ -36,6 +36,12 @@ następnie
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
+flota za brak atencji, brak odzewu
+dopiero jak się wszystko wali, 
+poczujesz swoją prawdziwą naturę
+nie zrozumiesz mnie bo nic widzisz nawet siebie
+no to leci dron, skapniesz się jak cię rozjebie
+
 
 Flota dronów, flota dronów zabije twoją rodzinę ey
 
