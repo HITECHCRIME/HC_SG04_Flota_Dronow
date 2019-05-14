@@ -3,25 +3,37 @@ Hitech Crime Single 'Flota Dronów'
 
 **Beat:** [CHARGE] [WAVY AF]
 
+## Lyrics
+
+```
+
 "Mayday, mayday, is anyone out there!? Please help!"
-*beeping, drone sound* skrrt
+skrrt 
+*beeping, drone sound*
 
-ya ya ya ya skrrt skrrt skrrt
+yaaauuu
+ya ya ya ya 
+skrrt skrrt skrrt
+yaaa-aaa-uuu
 
+"Fire them all up"
+No to lecą
 "Come on, fire!"
 
 Flota dronów, flota dronów zabije twoją całą rodzinę (ye)
 Flota dronów, flota dronów zabije twoją rodzinę (aye ey - ya)
 
+
+
 Co ty sobie myślisz biurwo - aha
 Co ty sobie myślisz biurwo - no co
 Co ty sobie myślisz biurwo co ty sobie myślisz kurwo
-Że co to jest, co to jest x2 to jest ey
+Że co to jest, co to jest to jest ey
 Co ty sobie myślisz biurwo?
 To śmierć, ty to śmierć (yeah)
 
 flota dronów, flota dronów rozwali to wszystko w perz
-co ty jeszcze nie wiesz co to jest - to śmierć.
+co ty jeszcze nie wiesz co to jest - to śmierć
 Ty to śmierć x3
 Ty to śmierć ye, ty to śmierć - ye ey
 
@@ -30,7 +42,7 @@ Nie utrzymasz się pod dachem (?????) rozwalisz to wszystko w perz
 Wszystkie więzi w perz, przemyśl to no ponów myśl,  
 Wejdź w ten chaos, odnajdź się,
 Rzuć to wszystko lub się skreśl
-Podwójna wypłata to nie kres
+Podwójna wypłata to nie kres ya
 x w perz ye
 następnie
 
@@ -47,3 +59,5 @@ Flota dronów, flota dronów zabije twoją rodzinę ey
 
 Zasłoni Twe niebo (???????)
 Zabije całą Twą rodzinę ? nope nope nope
+
+```
